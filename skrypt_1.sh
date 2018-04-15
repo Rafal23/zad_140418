@@ -1,1 +1,1 @@
-dfjnsvinssvdsvbsb
+nowy wpis
